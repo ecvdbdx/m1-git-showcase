@@ -1,5 +1,3 @@
 # TRUMP
 
-Make America Great Again
-
-
+Make America Bad Again
